@@ -1,4 +1,4 @@
-# 
+# exclusive Logic Pro for macOS Addon | green-screen-removal + color-correction offers the most advanced Logic Pro for macOS addon, with green-screen-removal and color-correction.
 
 
 
